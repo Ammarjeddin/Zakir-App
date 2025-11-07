@@ -1,5 +1,5 @@
 Privacy Policy for Apps by Jamaleddin LLC
-Last Updated: October 22, 2025
+Last Updated: Nov 07, 2025
 
 This Privacy Policy describes how Jamaleddin LLC ("we", "us", or "our") collects, uses, and shares your personal information when you use our mobile applications ("App" or "Apps").
 
